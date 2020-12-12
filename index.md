@@ -13,7 +13,7 @@ I am Aaron Manoj I am 18, I go to durham collage. In my free time I like to draw
 
 ### Stanley Jonathan Filice
 
-dsadasdsadsad
+(PUT YOUR PARAGRAPH HERE AND EARSE THIS TEXT)
 
 ## Other imformation
 
